@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on (nothing right now)
 - 📫 How to reach me (no contact available as of right now)
 - 😄 Pronouns: She/Her
-- ⚡ Fun fact: Im learning how it figure skate
+- ⚡ Fun fact: Im learning how to figure skate
 
 <!---
 algorithmpaige/algorithmpaige is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
