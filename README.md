@@ -2,7 +2,7 @@
 - 👀 I’m interested in learning new skils
 - 🌱 I’m currently learning PHP
 - 💞️ I’m looking to collaborate on (nothing right now)
-- 📫 How to reach me (im introverted, your guess is as good as mine)
+- 📫 How to reach me (no contact available as of right now)
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact: Im learning how it figure skate
 
